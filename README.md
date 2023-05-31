@@ -1,0 +1,3 @@
+#Canalesvictor
+https://pc-24.pelismxcdn.com/oxlcqmqktdvppecnltaiaymghwhujtjfkzlnrhsumgegvyivyxjwrjepuecsmpifpwjbdvsppjxybtnjzgesoqpjfobkrefssuiudqbcifvhbyoxfxhryplilbsieybjtcclxpyupfwzagzoxysbpwq wdjumzjnypwpmivgqpehfsayntbyvnrklkzgqxiqzvkpjxzpf/9f9babf48c35de67d66b191dbfb1d031/EP.0.0.v0.1684575268.720.m3u8
+Pelicula
